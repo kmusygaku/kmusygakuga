@@ -1,1 +1,1 @@
-# kmusygakuga
+ini baca dulu
